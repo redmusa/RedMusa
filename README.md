@@ -1,2 +1,4 @@
 # ___MUSA___
-## ![redmusa.t.me](https://github.com/redmusa/redmusa.github.io/blob/main/20220829_204136.png)
+## [Telegram](redmusa.t.me)
+## [Instagram](https://www.instagram.com/re_musa_d/)
+## [Youtube](https://youtube.com/channel/UC76lYfnSsLXt3mFMF-OCetw)
