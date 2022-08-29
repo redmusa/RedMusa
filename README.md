@@ -1,2 +1,2 @@
 # ___MUSA___
-## ![telegram](https://i.ibb.co/z7frMXP/20220829-204136.png)
+## ![redmusa.t.me](https://github.com/redmusa/redmusa.github.io/blob/main/20220829_204136.png)
